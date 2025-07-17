@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **andimassanjaya1054@gmail.com**
 
-- ⚡ Fun fact **I play LOL**
+- ⚡ Fun fact **I played LOL**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
